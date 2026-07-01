@@ -4,4 +4,4 @@
 ✅ 一键启动，一键去！🔥  
 ✅ 永久免费使用，无任何限制！🔥  
 
-👉[**AI一键去👗**](https://mypikpak.com/s/VOvXn17uhbvlNGcwtCwgNXzwo2)
+👉[**AI一键去👗**](https://aigj.netlify.app/)
