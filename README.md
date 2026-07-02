@@ -4,4 +4,6 @@
 ✅ 一键启动，一键去！🔥  
 ✅ 永久免费使用，无任何限制！🔥  
 
-👉[**AI一键去👗**](https://aigj.netlify.app/)
+👉[**AI一键去👗**](https://pan.wo.cn/s/1D1A5W91862)
+
+提取码：7Hxa
